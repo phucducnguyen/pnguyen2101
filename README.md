@@ -1,6 +1,6 @@
 # 🎮 Phuc Nguyen
 
-**`Digital Craftsman`**
+**`Electrical Engineer/ Self-taught Developer`**
 ---
 
 ### 🧰 Languages and Tools
